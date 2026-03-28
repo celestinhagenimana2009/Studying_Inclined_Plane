@@ -1,0 +1,1 @@
+# Studying_Inclined_Plane
